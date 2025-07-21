@@ -1,1 +1,1 @@
-ik how 2 use this, im js lazy asf.
+ik how 2 decorate, im js lazy asf.
