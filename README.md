@@ -69,6 +69,10 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 .   ➣   ₊ 
  ִ    ۫      ࣪   ׅ      ʾʿ    ›‹
 
+
+[![Untitled126-20250729084629.png](https://i.postimg.cc/2SDkmsyN/Untitled126-20250729084629.png)](https://postimg.cc/2V0R7Xn0)
+
+
 fandoms !
 FIFA/soccer  . whatʾʿever you wanna call it
 . 
