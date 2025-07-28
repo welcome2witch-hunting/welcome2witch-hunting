@@ -25,7 +25,9 @@
 
 　[![Tumblr-l-34418777881495.webp](https://i.postimg.cc/Kjw1P2j1/Tumblr-l-34418777881495.webp)](https://postimg.cc/XBKNWtwW)   ୭ৎ　 　  𝝑𝝔　  𝝑𝑒　  
 
-  ໑᱖          ꪆৎ　  𑁥𓍢    HII, hope [![Tumblr-l-620980842401.gif](https://i.postimg.cc/MH2kV3xW/Tumblr-l-620980842401.gif)](https://postimg.cc/YG3yw3hV)you'll  つ      ⏜︵      ︖    ᧔
+  ໑᱖          ꪆৎ　  𑁥𓍢    HII, hope
+[![Tumblr-l-29300189772272.png](https://i.postimg.cc/TP0hkmhM/Tumblr-l-29300189772272.png)](https://postimg.cc/8FF1c7ht)
+ [![Tumblr-l-620980842401.gif](https://i.postimg.cc/MH2kV3xW/Tumblr-l-620980842401.gif)](https://postimg.cc/YG3yw3hV)you'll  つ      ⏜︵      ︖    ᧔
 read    𑁥𓏲
 
 .♡ ts      ೀ . long .  
