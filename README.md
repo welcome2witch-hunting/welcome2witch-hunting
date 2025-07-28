@@ -56,7 +56,11 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 ၇  ㅤ᭢     ܍      ⪨      ৴      ⌑      ꪆ
 
 ୧           my name's "utsukushi hānshima un-yang-chai"!
-             nicknames  are allowed! free 2 make a nickname for me, that brings.          me.           joy 
+             nicknames ⠀⠀⠀ ⠀ ꒰ ꒱ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀⠀⠀ ⠀ ฅ ฅ ⠀⠀⠀⠀ ⠀ ก ก
+
+‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀ are allowed! ⠀⠀⠀ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀⠀⠀ ⠀ ฅ ฅ ⠀⠀⠀⠀ ⠀ ก ก
+
+‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ free 2 make a nickname for me, that brings.          me.           joy 
 ౿      ⩍      ⩌           ꒸
     
 ◍     ५     ⑅      ◞     ◟     ೀ
