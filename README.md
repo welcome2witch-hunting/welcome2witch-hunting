@@ -71,3 +71,7 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 
 fandoms !
 FIFA/soccer  . whatʾʿever you wanna call it
+. 
+usually in the DW / sonic section  .  in ponytown.  otherwise you can find me on t' beach 70•/• of the time! 
+.
+note: you wont see me much  , im usually in the Portuguese  or ss#2  . 
