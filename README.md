@@ -68,3 +68,6 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 ‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ 
 .   ➣   ₊ 
  ִ    ۫      ࣪   ׅ      ʾʿ    ›‹
+
+fandoms !
+FIFA/soccer  . whatʾʿever you wanna call it
