@@ -23,7 +23,7 @@
 
 ၄၃   𓍯    𓋭    ୨୧    ౨ৎ    𝜗  ϑℓ　    ၄၃
 
-　   ୭ৎ　 　  𝝑𝝔　  𝝑𝑒　  
+　[![Tumblr-l-34418777881495.webp](https://i.postimg.cc/Kjw1P2j1/Tumblr-l-34418777881495.webp)](https://postimg.cc/XBKNWtwW)   ୭ৎ　 　  𝝑𝝔　  𝝑𝑒　  
 
   ໑᱖          ꪆৎ　  𑁥𓍢    HII, hope [![Tumblr-l-620980842401.gif](https://i.postimg.cc/MH2kV3xW/Tumblr-l-620980842401.gif)](https://postimg.cc/YG3yw3hV)you'll  つ      ⏜︵      ︖    ᧔
 read    𑁥𓏲
