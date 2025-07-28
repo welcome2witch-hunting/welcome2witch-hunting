@@ -55,8 +55,10 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 [![Tumblr-l-3433130487236.png](https://i.postimg.cc/c47hcxfq/Tumblr-l-3433130487236.png)](https://postimg.cc/3dR28HL9)
 ၇  ㅤ᭢     ܍      ⪨      ৴      ⌑      ꪆ
 
-୧            ౿      ⩍      ⩌           ꒸
-
+୧           my name's "utsukushi hānshima un-yang-chai"!
+             nicknames  are allowed! free 2 make a nickname for me, that brings.          me.           joy 
+౿      ⩍      ⩌           ꒸
+    
 ◍     ५     ⑅      ◞     ◟     ೀ
 
 .   ➣   ₊ 
