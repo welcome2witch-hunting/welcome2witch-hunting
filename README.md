@@ -75,3 +75,65 @@ FIFA/soccer  . whatʾʿever you wanna call it
 usually in the DW / sonic section  .  in ponytown.  otherwise you can find me on t' beach 70•/• of the time! 
 .
 note: you wont see me much  , im usually in the Portuguese  or ss#2  . 
+
+
+
+★ Name:
+★ Nickname/Alias:
+★ Age:
+★ Gender/Pronouns:
+★ Species/Race:
+★ Occupation:
+★ Current Residence:
+
+ Appearance
+
+★ Height:
+★ Build:
+★ Skin Tone:
+★ Eye Color:
+★ Hair Color/Style:
+★ Distinguishing Features (scars, tattoos, etc.):
+★ Clothing Style:
+
+Personality
+
+★ MBTI Type (optional):
+★ Core Traits (e.g., ambitious, kind, sarcastic, etc.):
+★ Strengths:
+★ Weaknesses:
+★ Likes:
+★ Dislikes:
+★ Hobbies/Interests:
+
+ Background
+
+★ Birthplace:
+★ Family & Relationships:
+★ Upbringing & Childhood:
+★ Significant Events:
+★ Current Life Situation:
+
+ Skills & Abilities
+
+★ Special Skills/Talents:
+★ Combat Skills (if applicable):
+★ Weapons/Tools Used:
+★ Magic/Powers (if applicable):
+
+ Beliefs & Motivations
+
+★ Personal Philosophy:
+★ Religion/Spirituality (if any):
+★ Biggest Fear:
+★ Life Goals/Dreams:
+
+ Quirks & Fun Facts
+
+★ Favorite Food/Drink:
+★ Pet Peeves:
+★ Mannerisms (e.g., twirls hair, bites nails):
+★ Catchphrases/Verbal Tics:
+★ Secret Talent:
+
+Enjoy! search xxflderxx for more!!
