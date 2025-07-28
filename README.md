@@ -25,7 +25,8 @@
 
 　   ୭ৎ　 　  𝝑𝝔　  𝝑𝑒　  
 
-  ໑᱖          ꪆৎ　  𑁥𓍢    HII, hope [![Tumblr-l-620980842401.gif](https://i.postimg.cc/MH2kV3xW/Tumblr-l-620980842401.gif)](https://postimg.cc/YG3yw3hV)you'll  read    𑁥𓏲
+  ໑᱖          ꪆৎ　  𑁥𓍢    HII, hope [![Tumblr-l-620980842401.gif](https://i.postimg.cc/MH2kV3xW/Tumblr-l-620980842401.gif)](https://postimg.cc/YG3yw3hV)you'll  つ      ⏜︵      ︖    ᧔
+read    𑁥𓏲
 ♡ ts      ೀ . long .  
 ass ୭ৎ 
 repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀⠀⠀⠀ ⠀ ೀ
