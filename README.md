@@ -43,7 +43,7 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 
 ‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ ⠀⠀⠀⠀ ⠀ ‎ﻌ ⠀⠀⠀⠀ ⠀ ﹏
 
-. ︶  ➣  [![Tumblr-l-727529202556.gif](https://i.postimg.cc/nc9Zs7JV/Tumblr-l-727529202556.gif)](https://postimg.cc/QHDvwFCv) ₊  
+. ︶  ➣  Hi! Olá! こんにちは！مرحبًا! привет! ^^ [![Tumblr-l-727529202556.gif](https://i.postimg.cc/nc9Zs7JV/Tumblr-l-727529202556.gif)](https://postimg.cc/QHDvwFCv) ₊  
 
 ❊                       ✦         ༽      ༼
 
