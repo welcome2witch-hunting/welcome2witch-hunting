@@ -63,7 +63,8 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 ‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ free 2 make a nickname for me, that brings.          me.           joy 
 ౿      ⩍      ⩌           ꒸
     
-◍     ५     ⑅      ◞     ◟     ೀ
-
+◍     ५     ⑅      ◞current nicknames •utsumi ^ ☆ goofyass    ◟     ೀ dipshit
+⠀⠀⠀ ~ schizophrenic ho ⠀ ꒰ ꒱ ⠀⠀⠀ ⠀ ⠀ ฅ ฅ ⠀⠀pookie ○ ⠀neymar glazer *⠀ ⠀ ก ก
+‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ 
 .   ➣   ₊ 
  ִ    ۫      ࣪   ׅ      ʾʿ    ›‹
