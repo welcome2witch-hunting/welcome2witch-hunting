@@ -78,9 +78,3 @@ note: you wont see me much  , im usually in the Portuguese  or ss#2  .
 
 
 
-★ Name: 
-★ Nickname/Alias:
-★ Age:
-★ Gender/Pronouns:
-★ Species/Race:
-★ 
