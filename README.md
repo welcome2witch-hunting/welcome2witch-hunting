@@ -10,7 +10,7 @@
   
   
 
-  [![Tumblr-l-795767444930.gif](https://i.postimg.cc/L5Sn8TJW/Tumblr-l-795767444930.gif)](https://postimg.cc/bD6z61H0) 𝓝 𝑬.ꪗм 𝐀 ℛ
+  [![Tumblr-l-795767444930.gif](https://i.postimg.cc/L5Sn8TJW/Tumblr-l-795767444930.gif)](https://postimg.cc/bD6z61H0) 𝓝 𝑬.ꪗм 𝐀 ℛ [![Tumblr-l-600576707916.gif](https://i.postimg.cc/NFbJNdmq/Tumblr-l-600576707916.gif)](https://postimg.cc/FkdVzgTD) 𝐅𝒂♑︎
     
   
   
