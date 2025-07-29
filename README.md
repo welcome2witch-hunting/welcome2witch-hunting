@@ -10,16 +10,13 @@
   
   
 
-  [![Tumblr-l-795767444930.gif](https://i.postimg.cc/L5Sn8TJW/Tumblr-l-795767444930.gif)](https://postimg.cc/bD6z61H0) 𝓝 𝑬.ꪗм 𝐀 ℛ [![Tumblr-l-600576707916.gif](https://i.postimg.cc/NFbJNdmq/Tumblr-l-600576707916.gif)](https://postimg.cc/FkdVzgTD) 𝐅𝒂♑︎
+  [![Tumblr-l-795767444930.gif](https://i.postimg.cc/L5Sn8TJW/Tumblr-l-795767444930.gif)](https://postimg.cc/bD6z61H0) 𝓝 𝑬.yм 𝐀 ℛ [![Tumblr-l-600576707916.gif](https://i.postimg.cc/NFbJNdmq/Tumblr-l-600576707916.gif)](https://postimg.cc/FkdVzgTD) 𝐅𝒂n
     
   
   
   
 
-𐔌　𓋫　𓇯　𓉸　◞ ྀི
-
-
-. ︶  ➣   ₊ 
+ 
 
 ၄၃   𓍯    𓋭    ୨୧   [![Tumblr-l-34262806787685.png](https://i.postimg.cc/FsSNK8rp/Tumblr-l-34262806787685.png)](https://postimg.cc/0b9LWtJK) ౨ৎ    𝜗  ϑℓ　    ၄၃
 
@@ -50,16 +47,16 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 ၇  ㅤ᭢     ܍      ⪨      ৴      ⌑      ꪆ
 
 ୧           my name's "utsukushi hānshima un-yang-chai"!
-             nicknames ⠀⠀⠀ ⠀ ꒰ ꒱ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀⠀⠀ ⠀ ฅ ฅ ⠀⠀⠀⠀ ⠀ ก ก
+             nicknames ⠀⠀⠀ ⠀ ꒰ ꒱ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀⠀⠀ ⠀ ฅ ♡⠀⠀⠀ ⠀ ก ก
 
-‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀ are allowed! ⠀⠀⠀ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀⠀⠀ ⠀ ฅ ฅ ⠀⠀⠀⠀ ⠀ ก ก
+‌ ⠀⠀⠀  ⠀⠀ are allowed! ⠀⠀⠀ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀
 
-‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ free 2 make a nickname for me, that brings.          me.           joy 
-౿      ⩍      ⩌           ꒸
+‌ ⠀⠀⠀ ⠀ ⊂ ⠀⠀⠀ ⠀ ՞ free 2 make a nickname for me, that brings.          me.           joy 
+౿                      
     
 ◍     ५     ⑅      ◞current nicknames •utsumi ^ ☆ goofyass    ◟     ೀ dipshit
 ⠀⠀⠀ ~ schizophrenic hoe ⠀ ꒰ ꒱ ⠀⠀Rac/Raccoon. ⠀ ⠀ ⠀ ฅ ฅ ⠀⠀pookie ○ ⠀neymar glazer *⠀ ⠀ ก ก
-‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ 
+‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞  neymar simp . (DW, i love them all)
 .   ➣   ₊ 
  ִ    ۫      ࣪   ׅ      ʾʿ    ›‹
 
