@@ -85,5 +85,5 @@ note: you wont see me much  , im usually in the Portuguese  or ss#2  .
 ‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ ⠀
 1. neymar--> reason: for his dribbling skills, often leaving defenders bewildered with his close control and unpredictable movements. funny 2 see how confused they get 
 
-2 be continued--> 
+still in progress --> 
 [![Tumblr-l-31398733389617.gif](https://i.postimg.cc/zv9Vb8wJ/Tumblr-l-31398733389617.gif)](https://postimg.cc/bS9z4XFM)
