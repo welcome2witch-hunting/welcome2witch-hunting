@@ -70,9 +70,11 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
  ִ    ۫      ࣪   ׅ      ʾʿ    ›‹
 
 [![Tumblr-l-16082827449112.png](https://i.postimg.cc/90bw3y5s/Tumblr-l-16082827449112.png)](https://postimg.cc/FkfH3dKx)
+[![Tumblr-l-20940641226406.png](https://i.postimg.cc/pr3rMCcG/Tumblr-l-20940641226406.png)](https://postimg.cc/SY7kW6hC)
 [![Tumblr-l-16092357437066.png](https://i.postimg.cc/28fNMg0p/Tumblr-l-16092357437066.png)](https://postimg.cc/5jprFKcp)
 [![Untitled126-20250729084629.png](https://i.postimg.cc/2SDkmsyN/Untitled126-20250729084629.png)](https://postimg.cc/2V0R7Xn0)
 [![Tumblr-l-16092357437066.png](https://i.postimg.cc/28fNMg0p/Tumblr-l-16092357437066.png)](https://postimg.cc/5jprFKcp)
+[![Tumblr-l-20940641226406.png](https://i.postimg.cc/pr3rMCcG/Tumblr-l-20940641226406.png)](https://postimg.cc/SY7kW6hC)
 [![Tumblr-l-16082827449112.png](https://i.postimg.cc/90bw3y5s/Tumblr-l-16082827449112.png)](https://postimg.cc/FkfH3dKx)
 
 fandoms !
