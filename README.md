@@ -21,7 +21,7 @@
 
 . ︶  ➣   ₊ 
 
-၄၃   𓍯    𓋭    ୨୧    ౨ৎ    𝜗  ϑℓ　    ၄၃
+၄၃   𓍯    𓋭    ୨୧   [![Tumblr-l-34262806787685.png](https://i.postimg.cc/FsSNK8rp/Tumblr-l-34262806787685.png)](https://postimg.cc/0b9LWtJK) ౨ৎ    𝜗  ϑℓ　    ၄၃
 
 　[![Tumblr-l-34418777881495.webp](https://i.postimg.cc/Kjw1P2j1/Tumblr-l-34418777881495.webp)](https://postimg.cc/XBKNWtwW)   ୭ৎ　 　  𝝑𝝔　  𝝑𝑒　  
 
