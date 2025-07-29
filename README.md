@@ -80,5 +80,5 @@ usually in the DW / sonic section  .  in ponytown.  otherwise you can find me on
 .
 note: you wont see me much  , im usually in the Portuguese  or ss#2  . 
 
-
+[![Tumblr-l-11541071283014.jpg](https://i.postimg.cc/J4t600yb/Tumblr-l-11541071283014.jpg)](https://postimg.cc/dLPmSqj1)
 
