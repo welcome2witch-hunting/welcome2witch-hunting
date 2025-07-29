@@ -36,9 +36,9 @@ repository ⠀⠀⠀ ⠀ ୨୧ ⠀⠀⠀⠀ ⠀ ୨ৎ ⠀⠀⠀⠀ ⠀ ฅ ⠀
 
 ꔫ ⠀⠀⠀ 𓈒 𓈒 ⠀⠀⠀⠀ THERE'S A LOT OF GARBAGE ON HERE, HOPE YOU'RE WILLING 2 READ <3⠀ 𐂯 ⠀⠀⠀⠀ ⠀ ◝ ⠀ ⠀⠀⠀⠀⠀ ᵎᵎ
 
-꒰ ⠀⠀⠀ ⠀ ꒰ ꒱ ⠀⠀⠀ ⠀ ૮ ა ⠀⠀⠀⠀ ⠀ ฅ ฅ ⠀⠀⠀⠀ ⠀ ก ก
+꒰⠀⠀⠀ ⠀  ก
 
-‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ ⠀⠀⠀⠀ ⠀ ‎ﻌ ⠀⠀⠀⠀ ⠀ ﹏
+‌ ⠀⠀⠀ ⠀ ⊃  ⠀⠀⠀ ⠀ ՞ ՞ ⠀⠀⠀⠀ ⠀ ‎ﻌ ⠀⠀⠀⠀ ⠀ ﹏
 
 . ︶  ➣  Hi! Olá! こんにちは！مرحبًا! привет! ^^ [![Tumblr-l-727529202556.gif](https://i.postimg.cc/nc9Zs7JV/Tumblr-l-727529202556.gif)](https://postimg.cc/QHDvwFCv) ₊  
 
@@ -83,4 +83,4 @@ note: you wont see me much  , im usually in the Portuguese  or ss#2  .
 ᴍʏ ғᴀᴠᴏʀɪᴇ sᴏᴄᴄᴇʀ ᴘʟᴀʏᴇʀs
 . .ʀᴀɴᴋᴇᴅ |ғᴇᴇʟ ғʀᴇᴇ 2 sᴋɪᴘ|
 ‌ ⠀⠀⠀ ⠀ ⊃ ⊂ ⠀⠀⠀ ⠀ ՞ ՞ ⠀
-1. neymar--> reason: for his incredible dribbling skills, often leaving defenders bewildered with his close control and unpredictable movements. funny 2 see how confused they get
+1. neymar--> reason: for his incredible dribbling skills, often leaving defenders bewildered with his close control and unpredictable movements. funny 2 see how confused they get [![Tumblr-l-13186133707106.png](https://i.postimg.cc/y8sT9NxQ/Tumblr-l-13186133707106.png)](https://postimg.cc/Mv3RJqyV)
