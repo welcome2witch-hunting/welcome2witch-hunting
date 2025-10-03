@@ -8,4 +8,14 @@ _ _
  ㅤㅤㅤㅤㅤ*jasssy. shuu. anti. Isaac.*  [![Tumblr-l-296178650472884.gif](https://i.postimg.cc/6Qg0G8rj/Tumblr-l-296178650472884.gif)](https://postimg.cc/cK7Yp45w) *miochi. sunny. luelle*`[![Tumblr-l-296168790594160.gif](https://i.postimg.cc/FKMyH2mY/Tumblr-l-296168790594160.gif)](https://postimg.cc/DWcJCpSh)𓎢𓎡ㅤ*my discord loveys*
 
 [![Tumblr-l-296012360883387.png](https://i.postimg.cc/jqXMMStx/Tumblr-l-296012360883387.png)](https://postimg.cc/c6v7HZv2)
-[![Tumblr-l-296197749774870.gif](https://i.postimg.cc/Y95ZHpbd/Tumblr-l-296197749774870.gif)](https://postimg.cc/dk94RKMC)
+[![Tumblr-l-296197749774870.gif](https://i.postimg.cc/Y95ZHpbd/Tumblr-l-296197749774870.gif)](https://postimg.cc/dk94RKMC)‍
+
+         ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+         ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
+              ୨୧ ꒰ name ; age ꒱ ୨୧
+  𓉸ྀི info info info info info info inf 𓉸ྀི 
+                       like + rt  ♡ˊˎ-
+         ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+         ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+
+‍
