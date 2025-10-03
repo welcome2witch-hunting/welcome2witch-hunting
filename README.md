@@ -9,6 +9,4 @@ _ _
 
 [![Tumblr-l-296012360883387.png](https://i.postimg.cc/jqXMMStx/Tumblr-l-296012360883387.png)](https://postimg.cc/c6v7HZv2)
 
-      𓏲 ࣪ ˖˚  🌺      ᥴᥣ᥆sᥱ   ᥡ᥆ᥙr   ᥱᥡᥱs . .   ͜◞ ྀི
-                 ˙✦   ꪀꪖꭑ𝖾     ,,    ⍴rᥒs      ◞།ིྀ ͝ 𓈒Ꮺ 
-                   𓏴   ◟‿  ︵    𝒅𝒂𝒊𝒔𝒖𝒌𝒆.    ⠀ॱֺּׅ𓏽⠀ 🪓 
+        ʚ𓎟𓎟𓎟𓎟𓎟𓎟 ‎𖧁𝒞 𓎟𓎟𓎟𓎟𓎟𓎟𓎟ɞ
