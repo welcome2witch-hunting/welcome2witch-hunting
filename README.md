@@ -8,3 +8,19 @@ _ _
  ㅤㅤㅤㅤㅤ*jasssy. shuu. anti. Isaac.*  [![Tumblr-l-296178650472884.gif](https://i.postimg.cc/6Qg0G8rj/Tumblr-l-296178650472884.gif)](https://postimg.cc/cK7Yp45w) *miochi. sunny. luelle*`[![Tumblr-l-296168790594160.gif](https://i.postimg.cc/FKMyH2mY/Tumblr-l-296168790594160.gif)](https://postimg.cc/DWcJCpSh)𓎢𓎡ㅤ*my discord loveys*
 
 [![Tumblr-l-296012360883387.png](https://i.postimg.cc/jqXMMStx/Tumblr-l-296012360883387.png)](https://postimg.cc/c6v7HZv2)
+
+      SUMMER   BIO   !!
+ 
+
+     𑁍ࠬ     🥥    𝓝𝙖𝙢𝙚 .     ⌑
+
+        𝜗୧⠀⠀⠀🌊⠀⠀⠀⠀˖　  𝓫𝐮𝐭   𝐬u𝗺𝗺er's   in   ყo𝘂r   bl᥆᥆d     ᰔ    .
+
+       𝜗୧⠀⠀⠀🌊⠀⠀⠀⠀˖　  𝘵𝙭𝘵 ╱ 𝘭yr𝘪cs     ᰔ    .
+
+     ㅤ⌒⌒     ⛱️ㅤ  ᴘ ʀ ɴ ꜱ     ⊹     ♥︎
+
+    hiii
+      dc  @  luvchrm   i   need   moots   ^_^
+    repost  w  creds  <  3
+      reqs  are  welcome  ,  tag ' k4tmoon ' !
